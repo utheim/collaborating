@@ -1,3 +1,10 @@
+paul
+I was born, and now i life-
+
+put bread in the toaster to make bread
+
+random: made, done, or happening without method or conscious decision.
+
 My name is Martine, I was born 32 years ago in northern Norway and moved to Berlin 6 years ago. 
 
 This is a recipe for fried eggs: 1. Heat oil in a frying pan. 2. Fry the egg. 
@@ -11,5 +18,3 @@ Definition: The term "epitome" refers to a person or thing that is a perfect exa
 Usage in a sentence: "She is the epitome of kindness, always helping those in need."
 
 In literature, you might say, "The novel serves as an epitome of 19th-century romanticism."
-
-
